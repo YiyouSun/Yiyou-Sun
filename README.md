@@ -1,2 +1,2 @@
 # Yiyou-Sun
-This is going to be established, the projects are organising and going to be uploaded recently
+This is homepage of Yiyou Sun (under establishment)
